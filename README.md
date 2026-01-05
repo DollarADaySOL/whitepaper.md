@@ -1,6 +1,6 @@
 # whitepaper.md
 
-Whitepaper for $1DAY - Dollar A Day Solana meme coin 
+Whitepaper for $1DAY - Dollar A Day Solana meme coin  
 
 Dollar A Day ($1DAY) Whitepaper – Version 1.2Date: January 04, 2026
 
