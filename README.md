@@ -91,13 +91,13 @@ $1DAY isn't about get-rich-quick. It's about consistency, community, and compoun
 
 Join the patient stack. Invest $1 a day. Hold. Earn. Watch it grow.
 
+
 Contract Address: 1DayqipGBLsKqe9zAxfywUDVn4yry24NcrQhc8fn8AR
 
-Live on: https://pump.fun/1DayqipGBLsKqe9zAxfywUDVn4yry24NcrQhc8fn8AR
 
 Official X Account: https://x.com/DollarADay_SOL
 
 Telegram: https://t.me/dollaraday_sol
 
-Community: Join us for daily discussions and memes!
+Community: https://x.com/i/communities/2007278292332920840
 
