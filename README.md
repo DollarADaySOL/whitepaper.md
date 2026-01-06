@@ -97,7 +97,7 @@ Live on: https://pump.fun/1DayqipGBLsKqe9zAxfywUDVn4yry24NcrQhc8fn8AR
 
 Official X Account: https://x.com/DollarADay_SOL
 
-Telegram: https://x.com/DollarADay_SOL
+Telegram: https://t.me/dollaraday_sol
 
 Community: Join us for daily discussions and memes!
 
